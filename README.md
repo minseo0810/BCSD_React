@@ -1,1 +1,1 @@
-# minseo0810.githun.io
+# minseo0810.github.io
